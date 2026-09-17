@@ -12,4 +12,3 @@
   📫 Reach me at: <a href="mailto:himanshusoni0516@gmail.com">himanshusoni0516@gmail.com</a>  
   🌐 Connect on <a href="https://www.linkedin.com/in/himanshu-soni-3545b1280/">LinkedIn</a>
 </p>
-
